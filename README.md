@@ -12,6 +12,3 @@
 改良nav+part3
 
 -------------------------
-
-heyheyheyheyheyhey
-哈阿哈哈ㄏ阿
